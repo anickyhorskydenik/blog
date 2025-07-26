@@ -2,11 +2,11 @@
 <rss version="2.0" xmlns:atom="http://www.w3.org/2005/Atom">
   <channel>
     <title>Aničky horský deník</title>
-    <link>https://anickyhorskydenik.cz/</link>
+    <link>https://www.anickyhorskydenik.cz/</link>
     <description>Recent content on Aničky horský deník</description>
     <generator>Hugo</generator>
     <language>cs-CZ</language>
     <lastBuildDate></lastBuildDate>
-    <atom:link href="https://anickyhorskydenik.cz/index.xml" rel="self" type="application/rss+xml" />
+    <atom:link href="https://www.anickyhorskydenik.cz/index.xml" rel="self" type="application/rss+xml" />
   </channel>
 </rss>

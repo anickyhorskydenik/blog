@@ -1,4 +1,4 @@
-baseURL = 'https://anickyhorskydenik.cz/'
+baseURL = 'https://www.anickyhorskydenik.cz/'
 languageCode = 'cs-CZ'
 title = 'Aničky horský deník'
 publishDir = 'docs'
