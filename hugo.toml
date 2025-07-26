@@ -1,3 +1,5 @@
 baseURL = 'https://anickyhorskydenik.cz/'
 languageCode = 'cs-CZ'
 title = 'Aničky horský deník'
+publishDir = 'docs'
+theme = "ananke"
