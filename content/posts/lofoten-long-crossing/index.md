@@ -17,11 +17,16 @@ Přechod Lofot z jihu na sever (Moskenes → Svolvaer) se stal jedním z nejnár
 
 ## Příprava a start
 
-Večeře a snídaně na 10 dní jsme si nesli na zádech a spoustu jídel jsme si doma nasušili. Toto není žádný oficiální trek a s trasou jsme se inspirovali na stránkách neznámého člověka.
+Večeře a snídaně na 10 dní jsme si nesli na zádech a spoustu jídel jsme si doma nasušili. Hlavně domácí sušené Chilli con carne a kuřecí kari, sušené hovězí a kuřecí maso.
+![Jídlo na celý výlet](518355745_24893803796874308_141215936572152450_n.jpg)
+*Naše snídaně a večere s sebou - batohy měly bez vody 16 kg.*
 
-Plní síly vyrážíme z **Moskenes** a ještě si děláme srandu, že nepůjdeme po turistické červené, ale vezmeme to čárkovanou cestou, aby to byla "větší divočina". To ještě netušíme, že v dalších dnech se nám po červené bude stýskat! 😃
+Toto není žádný oficiální trek a s trasou jsme se inspirovali na stránkách neznámého člověka. Plní síly vyrážíme z **Moskenes** a ještě si děláme srandu, že nepůjdeme po turistické červené, ale vezmeme to čárkovanou cestou, aby to byla "větší divočina". To ještě netušíme, že v dalších dnech se nám po červené bude stýskat! 😃
 
 Stany stavíme s výhledem na **nejvyšší horu Lofot, Hermanndalstidnen**, na kterou si máme v plánu také "odskočit". Je dost strmá a normálka je místy ještě pod sněhem, tak vyhraje zdravý rozum a nepokoušíme se o ní bez potřebné výbavy.
+
+![Stan s výhledem na Hermanndalstidnen](514412366_24894013660186655_1505825618974621564_n.jpg)
+*Naše místo na stan s výhledem na nejvyšší horu Lofot.*
 
 ## Den č. 2: Very difficult path
 
@@ -30,7 +35,7 @@ Nejnáročnější den treku! Sestupujeme cestou označenou v mapě jako **"very
 ![Difficult terrain](difficult-path.jpg)
 *Téměř lezecké kroky a přelézání obřích boulderů*
 
-**Téměř lezecké kroky, přelejzání obřích boulderů a brodění se džunglí a bažinama** - 1 km jsme ušli za 2 hodiny. Tímto tempem to nedáme ani do Vánoc…
+**Téměř lezecké kroky, přelejzání obřích boulderů a brodění se džunglí a bažinama** - 1 km jsme ušli za 2 hodiny. Tímto tempem to nedáme ani do Vánoc…  4. den zjišťujeme že už jsme asi tak 30 km pozadu za plánem. Kdo byl ten člověk co napsal ten článek?… 😃 Musíme zakomponovat více stopování po silnicích, abychom si užili ty hezké části a mohli vynechat silnice. Přechod Lofot je logisticky nemožný bez trajektů, podzemního tunelu a chůze po silnici, protože se jedná o souostroví.
 
 ## Poznávání lofotského terénu
 
@@ -99,6 +104,8 @@ Poté již finální sestup do civilizace a cesta trajektem zpět do **Bodø** -
 ## Závěrečné hodnocení
 
 Když bych přechod Lofot srovnala třeba s islandským přechodem duhových hor, ten byl oproti tomu logisticky jednoduchý a cesty a terén jasné a schůdné.
+![Prdeláč](518118463_24893819246872763_2664326888780327666_n.jpg)
+*Jeden z častých pohybů na Lofotech, tzv. prdeláč 😀*
 
 Ze všech dálkových treků mi Lofoty přišly **psychicky a fyzicky nejtěžší.**
 
@@ -109,3 +116,20 @@ A nutno říct, že jsme na místní poměry měli opravdu **luxusní počasí**
 
 I po několikadenním suchu jsme se bořili po kotníky v blátě. **Ale jinak je to nádherná krajina, drsná a odlehlá.**
 
+![Fotka](514253287_24893818750206146_6354394302213313237_n.jpg)
+![Fotka](518393606_24893803710207650_8721788082977140663_n.jpg)
+![Fotka](514265554_24893809430207078_981499182155775126_n.jpg)
+![Fotka](514280026_24893812633540091_8731852181064751476_n.jpg)
+![Fotka](514359607_24893813623539992_7446503832473164261_n.jpg)
+![Fotka](514361689_24893815456873142_8880750912400103293_n.jpg)
+![Fotka](518374644_24893810940206927_6069819766067497438_n.jpg)
+![Fotka](518376481_24893820306872657_3148412771038756342_n.jpg)
+![Fotka](518395656_24893814213539933_8954226729347882164_n.jpg)
+![Fotka](518400242_24893819940206027_3541940382283783564_n.jpg)
+![Fotka](518405641_24893819336872754_1020658405285720735_n.jpg)
+![Fotka](518886511_24893808060207215_876023955061513735_n.jpg)
+![Fotka](518958279_24893819683539386_284977464593640864_n.jpg)
+![Fotka](519692965_24893819586872729_1079127100972299093_n.jpg)
+![Fotka](520250480_24893820253539329_3597400522946878097_n.jpg)
+![Fotka](520426433_24893820003539354_8728984448314567923_n.jpg)
+![Fotka](521547865_24893812026873485_1862226871102724314_n.jpg)
