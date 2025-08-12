@@ -13,12 +13,19 @@ featured_image = "vychod_slunce_strahlhorn.jpg"
 ![Strahlhorn](vrcholove_partie.jpg)
 
 Ale jak už to tak bývá, člověk rychle zapomíná na všechny krušné chvíle, které v horách zažil. Zbydou jen ty krásné vzpomínky. A tak se po nějaké době znovu přistihne, jak plánuje další srandu na horách. Tentokrát padla volba na švýcarský Saas Grund. 
+
 Proč? 
+
 Protože tam mají díru v systému. 
+
 Pokud přespáváte v kempu, máte drahé lanovky v celém údolí zdarma. 
+
 Ano, čtete správně. 
+
 Plán byl tedy jasný, levný výlet na čtyřtisícovku ve Švýcarsku bez nutnosti prodávat ledvinu. 
+
 Jako obvykle jsem Martina opět nalákala na vidinu „lowcostového výletu“. 
+
 Do party se přidali Andy a Mára, ostřílení borci, se kterými jsem se poznala na Mountain Academy a byli jsme spolu na Wildspitzi. Ideální parta!
 
 ## Spaní na Furce a výšlap natěžko na Britannia Hütte
