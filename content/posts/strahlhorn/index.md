@@ -12,7 +12,7 @@ featured_image = "vychod_slunce_strahlhorn.jpg"
 
 ![Strahlhorn](vrcholove_partie.jpg)
 
-Ale jak už to tak bývá, člověk rychle zapomíná na všechny krušné chvíle, které v horách zažil. Zbydou jen ty krásné vzpomínky. A tak se po nějaké době znovu přistihne, jak plánuje další srandu na horách. Tentokrát padla volba na švýcarský Saas Grund. 
+Ale jak už to tak bývá, člověk rychle zapomíná na všechny krušné chvíle, které v horách zažil. Zbydou jen ty krásné vzpomínky. A tak se po nějaké době znovu přistihne, jak plánuje další srandu na horách... Tentokrát padla volba na švýcarský Saas Grund. 
 
 Proč? 
 
@@ -30,7 +30,16 @@ Do party se přidali Andy a Mára, ostřílení borci, se kterými jsem se pozna
 
 ## Spaní na Furce a výšlap natěžko na Britannia Hütte
 
-Ve čtvrtek po práci vyrážíme z Innsbrucku míříme vstříc Švýcarsku. Přenocujeme klasicky na Furka Passu, spaní v autě zadarmo, jak jinak. Na vařiči vaříme udon nudle s tuňákem a sušenými rajčaty a strouháme si na ně čerstvý parmezán. To by šlo! Telefony máme od hranic přepnuté do režimu letadlo, nechceme riskovat připojení se na švýcarská data. Na pátek máme naplánovaný pracovní den, takže jsem předem vybrala kavárnu v Brigu. A byla to trefa. Mají tam zásuvky, rychlý internet a milou obsluhu. Ideální coworking pro nomády. Pracujeme v téměř prázdné kavárně za cenu Chai latte. 
+Ve čtvrtek po práci vyrážíme z Innsbrucku míříme vstříc Švýcarsku. Přenocujeme klasicky na Furka Passu, spaní v autě zadarmo, jak jinak. Na vařiči vaříme udon nudle s tuňákem a sušenými rajčaty a strouháme si na ně čerstvý parmezán. To by šlo! 
+
+![snidane](snidane_furka.jpg)
+
+Telefony máme od hranic přepnuté do režimu letadlo, nechceme riskovat připojení se na švýcarská data. Na pátek máme naplánovaný pracovní den, takže jsem předem vybrala kavárnu v Brigu. A byla to trefa. Mají tam zásuvky, rychlý internet a milou obsluhu. 
+
+Ideální coworking pro nomády. Pracujeme v téměř prázdné kavárně za cenu Chai latte. 
+
+![kavarna](prace_kavarna.jpg)
+
 Původní plán spát v kempu nakonec měníme a místo toho si rezervujeme nocleh v matrazenlageru na Britannia Hütte. Rozhodujeme se vylézt k chatě bez pomoci lanovek. Podaří se nám domluvit spaní bez polopenze. Když trávíte každý víkend v horách, začne se polopenze trochu prodražovat. Takže bereme vařič a jídlo na tři dny, naházíme všechno do batohů a vyrážíme pěšky od nádrže Mattmark.
 Na chatu musíme překonat cca 1000 výškových. Cestou přecházíme zbytky dvou ledovců, ale není se čeho bát, trasa je dobře vyznačená tyčemi a bez trhlin.
 
