@@ -32,18 +32,15 @@ Do party se přidali Andy a Mára, ostřílení borci, se kterými jsem se pozna
 
 Ve čtvrtek po práci vyrážíme z Innsbrucku míříme vstříc Švýcarsku. Přenocujeme klasicky na Furka Passu, spaní v autě zadarmo, jak jinak. Na vařiči vaříme udon nudle s tuňákem a sušenými rajčaty a strouháme si na ně čerstvý parmezán. To by šlo! 
 
-Telefony máme od hranic přepnuté do režimu letadlo, nechceme riskovat připojení se na švýcarská data. Na pátek máme naplánovaný pracovní den, takže jsem předem vybrala kavárnu v Brigu. A byla to trefa. Mají tam zásuvky, rychlý internet a milou obsluhu. 
-
-Ideální coworking pro nomády. Pracujeme v téměř prázdné kavárně za cenu jednoho kafe. 
-
-![kavarna](prace_kavarna.jpg)
+Telefony máme od hranic přepnuté do režimu letadlo, nechceme riskovat připojení se na švýcarská data. Na pátek máme naplánovaný pracovní den, takže jsem předem vybrala kavárnu v Brigu. A byla to trefa. Mají tam zásuvky, rychlý internet a milou obsluhu. Ideální coworking pro nomády. Pracujeme v téměř prázdné kavárně za cenu jednoho kafe. 
 
 Původní plán spát v kempu nakonec měníme a místo toho si rezervujeme nocleh v matrazenlageru na Britannia Hütte. Rozhodujeme se vylézt k chatě bez pomoci lanovek. Podaří se nám domluvit spaní bez polopenze. Když trávíte skoro každý víkend v horách, začne se polopenze trochu prodražovat. Takže bereme vařič a jídlo na tři dny, naházíme všechno do batohů a vyrážíme pěšky od nádrže Mattmark.
 
-Na chatu musíme překonat cca 1000 výškových. Cestou přecházíme zbytky dvou ledovců, ale není se čeho bát, trasa je dobře vyznačená tyčemi a bez trhlin.
-
 ![pristup](pristup_britannia.jpg)
 
+Na chatu musíme překonat cca 1000 výškových. Cestou přecházíme zbytky dvou ledovců, ale není se čeho bát, trasa je dobře vyznačená tyčemi a bez trhlin.
+
+![pristup](vareni_chata.jpg)
 
 ## Wintráč, drahá voda a sněžení
 
