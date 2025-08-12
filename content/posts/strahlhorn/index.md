@@ -107,7 +107,7 @@ Celá cesta z chaty na vrchol má cca 8 kilometrů jedním směrem a téměř 13
 
 Stěna Rimpfischhornu se před námi tyčí celou dobu, kdy pomalu postupujeme po ledovci nahoru. Vlevo od Rimpfischhornu se nachází Adlerpass, sedlo, ze kterého začíná finální výstup na Strahlhorn. Tedy je to odtamtud ještě 400 výškových metrů na vrchol. 
 
-![slunce](Obrázek WhatsApp, 2025-08-05 v 17.20.51_4876d392.jpg)
+![slunce](rimpfischhron.jpg)
 
 Cestou potkáváme jednu dvojici, pár, který se právě vrací. Snažili se o výstup na Rimpfischhorn, ale trhliny je nakonec zastavily. Holčina do jedné zapadla po zadek a pak se asi vybála, takže to vzdali. Nepokouší se už o nic dalšího. A potom jsme celou dobu úplně sami. Dvě skupiny, které jsme viděli na začátku dne, už jsou nad sedlem, v traverzu, a my je ztrácíme z dohledu.
 Celou dobu jdu první na laně a vedu naši partu. Už teď je trochu znát nadmořská výška, ale jdeme stabilně a nezastavujeme a já mám radost z toho, jak nám to jde. To mi ovšem nevydrží dlouho, protože v tom se ozve Mára zezadu: „Je tohle vaše maximum?, protože jdeme dost pomalu a já každý dva vaše kroky musím zastavovat“. Trošku mě to vytočilo. Cože? To si myslí že se tady jako asi opaluju nebo co? :-D Šlapu do kopce ve 4000, nezastavuju, tak co víc by chtěl… :D No nic, Mára pochopí, že z nás už slovními pobídkami bohužel víc nevymáčkne, dává si na sebe další vrstvu a smiřuje se s naším tempem. 
