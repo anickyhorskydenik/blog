@@ -36,26 +36,77 @@ Ve čtvrtek po práci vyrážíme z Innsbrucku míříme vstříc Švýcarsku. P
 
 Telefony máme od hranic přepnuté do režimu letadlo, nechceme riskovat připojení se na švýcarská data. Na pátek máme naplánovaný pracovní den, takže jsem předem vybrala kavárnu v Brigu. A byla to trefa. Mají tam zásuvky, rychlý internet a milou obsluhu. 
 
-Ideální coworking pro nomády. Pracujeme v téměř prázdné kavárně za cenu Chai latte. 
+Ideální coworking pro nomády. Pracujeme v téměř prázdné kavárně za cenu jednoho kafe. 
 
 ![kavarna](prace_kavarna.jpg)
 
-Původní plán spát v kempu nakonec měníme a místo toho si rezervujeme nocleh v matrazenlageru na Britannia Hütte. Rozhodujeme se vylézt k chatě bez pomoci lanovek. Podaří se nám domluvit spaní bez polopenze. Když trávíte každý víkend v horách, začne se polopenze trochu prodražovat. Takže bereme vařič a jídlo na tři dny, naházíme všechno do batohů a vyrážíme pěšky od nádrže Mattmark.
+Původní plán spát v kempu nakonec měníme a místo toho si rezervujeme nocleh v matrazenlageru na Britannia Hütte. Rozhodujeme se vylézt k chatě bez pomoci lanovek. Podaří se nám domluvit spaní bez polopenze. Když trávíte skoro každý víkend v horách, začne se polopenze trochu prodražovat. Takže bereme vařič a jídlo na tři dny, naházíme všechno do batohů a vyrážíme pěšky od nádrže Mattmark.
+
+![mattmark](mattmark_nadrz.jpg)
+
 Na chatu musíme překonat cca 1000 výškových. Cestou přecházíme zbytky dvou ledovců, ale není se čeho bát, trasa je dobře vyznačená tyčemi a bez trhlin.
+
+![pristup](pristup_britannia.jpg)
+
 
 ## Wintráč, drahá voda a sněžení
 
-Na chatě nás šoupli do winterraumu – jackpot! Můžeme si v klidu uvařit venku a sníst to u stolu. Abychom alespoň podpořili chatu, dáváme pití, mastíme s Andy a Márou karty a domlouváme plány následujících dní. 
-nedostatek pitné vody. Vodu sem dovážejí vrtulníkem a cena za jednu lahev nás trochu zaskočila. Na dotaz, kolik stojí, slečna řekla něco jako 14 franků. Nebo snad 40? Těžko říct. Ať je to tak či tak, začali jsme si pro vodu chodit k ledovci. Trochu delší cesta, ale zato voda zdarma. Voda je lehce načervenalá, tak ji raději vždy převařujeme. Náš sobotní plán byl dát si aklimatizační výstup, ale počasí nám nepřeje, od rána sněží, fouká vítr, malá viditelnost. Nikomu se do tohoto počasí moc nechce. Procházíme se tedy v okolí, zajišťujeme vodu a obhlížíme trasu na neděli.
+Na chatě nás šoupli do winterraumu – jackpot! 
 
-V sobotu jsme si šli detailně prohlédnout trasu plánovanou na neděli. Podle mapy vede od chaty trochu nelogicky, nejprve přes ledovec Hohlaubgletscher, kde se nachází několik trhlin. Následuje strmější výšvih na skalní hřebínek, který je potřeba přejít, a poté sestup traverzem v suťovém poli. Odtud se napojujete na ledovec Allalingletscher, jehož dolní část je posetá obrovskými trhlinami. Dolní část jsme si důkladně obhlédli a shodli jsme se: tudy jít nechceme. Ledovec je rozpraskaný a pro nás těžko čitelný. Nevíme, jestli tam vůbec vede aktuálně nějaká cesta. Jestli ano, tak ji nevidíme.
+Můžeme si v klidu uvařit venku a sníst to u stolu. Abychom alespoň podpořili chatu, dáváme pití, mastíme s Andy a Márou karty a domlouváme plány následujících dní. 
+
+![mapa](planovani_mapy.jpg)
+
+Zjišťujeme, že na chatě je vážný nedostatek pitné vody. Vodu sem dovážejí vrtulníkem a cena za jednu lahev nás trochu zaskočila. Na dotaz, kolik stojí, slečna řekla něco jako 14 franků. 
+
+Nebo snad 40? 
+
+Těžko říct. 
+
+Ať je to tak či tak, začali jsme si pro vodu chodit k ledovci. Trochu delší cesta, ale zato voda zdarma. Voda je lehce načervenalá, tak ji raději vždy převařujeme. Náš sobotní plán byl dát si aklimatizační výstup, ale počasí nám nepřeje, od rána sněží, fouká vítr, malá viditelnost. Nikomu se do tohoto počasí moc nechce. Procházíme se tedy v okolí, zajišťujeme vodu a obhlížíme trasu na neděli.
+
+![snih](snezeni.jpg)
+
+V sobotu jsme si šli detailně prohlédnout trasu plánovanou na neděli. Podle mapy vede od chaty trochu nelogicky, nejprve přes ledovec Hohlaubgletscher, zprvu celkem kompaktním, poté přichází zóna trhlin a pak se zase zkompaktní. Následuje strmější výšvih na skalní hřebínek, který je potřeba přejít, a poté sestup traverzem v suťovém poli. Odtud se napojujete na ledovec Allalingletscher, jehož dolní část je proťatá obrovskými trhlinami. Cesta se napojuje v místě, kde už je trhlin méně.
+
+Dolní část jsme si důkladně obhlédli a shodli jsme se: tudy jít nechceme. 
+
+Ledovec je rozpraskaný a pro nás těžko čitelný. Nevíme, jestli tam vůbec vede aktuálně nějaká cesta. 
+
+Jestli ano, tak ji nevidíme.
 
 ## Ranní start, trhliny a východ slunce nad hřebínkem
 
-Budík zvoní ve 2:40 ráno. Vstáváme a venku si vaříme vodu na kaši. Krátce před čtvrtou ranní už stojíme připraveni před chatou. Lano máme naměřené a nachystané už ze soboty, kdy jsme si trénovali vytahování z trhliny a práci s lanem, abychom si vše znovu osvěžili. Mám z nás radost. Jsme dobře připravení i aklimatizovaní, dvě noci ve výšce kolem 3000 m, plus přespání na Furce, udělaly svoje. Když vyrážíme, vidíme dvě družstva před námi. Ale záhy si všímáme, že jdou úplně jinam než my, míří na spodní část rozervaného Allalin ledovce. Netušíme kam tam míří, protože ani za denního světla jsme tam cestu nenašli, natož teď za tmy jen s čelovkami. Držíme se tedy našeho směru přes ledovec Hohlaubgletscher a následně přes skalní hřebínek. Cestou potkáváme další dvě družstva, která se vydávají na hřeben Hohlaubgrat směrem na Allalinhorn. Jejich trasa vede po pravé straně ledovce a brzy nám mizí ve tmě.
-Na Hohlaubgletscheru bezpečně přecházíme zónu s trhlinami. Jakmile se blížíme k hřebínku, odvazujeme se, abychom ho mohli pohodlně přejít. A právě při přechodu nás vítá východ slunce. Zasněžené hory kolem nás se zbarvují do oranžova a Strahlhorn v dálce září v ranním světle. Pokračujeme dál po táhlém ledovci směrem k Adlerpassu, sedlu mezi Strahlhornem a Rimpfischhornem. 
+Budík zvoní ve 2:40 ráno. 
 
-Na místě kde se připojujeme na Allalin ledovec necháváme nepotřebné cajky jako je vařič a bomba a další těžké věci a pak se vydáváme na dlouhý a táhlý postup po ledovci směrem nahoru. Před sebou vidíme zmíněná dvě družstva. Oni ten ledovec Allalin spodem prošli za tmy? Fakt netušíme kudy, ale když to prošli oni, tak my to musíme projít na cestě zpátky taky. Celá cesta z chaty na vrchol má cca 8 kilometrů jedním směrem a téměř 1300 výškových metrů převýšení. Po výstupu navíc musíme sestoupit až k autu, protože v pondělí musíme pracovat. A tak přichází náš geniální plán, že to pak sejdeme po ledovci Allalin dolů a napojíme se rovnou na trasu, která pak vede k autu. Vracet se zpět k Britannia Hütte by totiž znamenalo zbytečnou zacházku na několik hodin a další výškové metry navíc. 
+![budik](budicek.jpg)
+
+Vstáváme a venku si vaříme vodu na kaši. Krátce před čtvrtou ranní už stojíme připraveni před chatou. Lano máme naměřené a nachystané už ze soboty, kdy jsme si trénovali vytahování z trhliny a práci s lanem, abychom si vše znovu osvěžili. 
+
+Mám z nás radost. 
+
+Jsme dobře připravení i aklimatizovaní, dvě noci ve výšce kolem 3000 m, plus přespání na Furce, udělaly svoje. 
+
+Když vyrážíme, vidíme dvě družstva před námi. Ale záhy si všímáme, že jdou úplně jinam než my, míří na spodní část rozervaného Allalin ledovce. Netušíme kam tam míří, protože ani za denního světla jsme tam cestu nenašli, natož teď za tmy jen s čelovkami. 
+
+Držíme se tedy našeho směru přes ledovec Hohlaubgletscher a následně přes skalní hřebínek. Cestou potkáváme další dvě družstva, která se vydávají na hřeben Hohlaubgrat směrem na Allalinhorn. Jejich trasa vede po pravé straně ledovce a brzy nám mizí ve tmě.
+
+Na Hohlaubgletscheru bezpečně přecházíme zónu s trhlinami. Jakmile se blížíme k lehkému hřebínku, odvazujeme se, abychom ho mohli pohodlně přejít. A právě při přechodu nás vítá východ slunce. Zasněžené hory kolem nás se zbarvují do oranžova a Strahlhorn v dálce září v ranním světle. 
+
+![slunce](vychod_slucne_hrebinek.jpg)
+
+Pokračujeme dál po táhlém ledovci směrem k Adlerpassu, sedlu mezi Strahlhornem a Rimpfischhornem. 
+
+Na místě kde se připojujeme na Allalin ledovec necháváme nepotřebné cajky jako je vařič a bomba a další těžké věci a pak se vydáváme na dlouhý a táhlý postup po ledovci směrem nahoru. 
+
+Před sebou vidíme zmíněná dvě družstva. Oni ten ledovec Allalin spodem prošli za tmy? 
+
+Fakt netušíme kudy, ale když to prošli oni, tak my to musíme projít na cestě zpátky taky. 
+
+Celá cesta z chaty na vrchol má cca 8 kilometrů jedním směrem a téměř 1300 výškových metrů převýšení. Po výstupu navíc musíme sestoupit až k autu, protože v pondělí musíme pracovat. A tak přichází náš geniální plán, že to pak sejdeme po ledovci Allalin dolů a napojíme se rovnou na trasu, která pak vede k autu. Vracet se zpět k Britannia Hütte by totiž znamenalo zbytečnou zacházku na několik hodin a další výškové metry navíc. 
+
+
+
 Stěna Rimpfischhornu se před námi tyčí celou dobu, kdy pomalu postupujeme po ledovci nahoru. Vlevo od Rimpfischhornu se nachází Adlerpass, sedlo, ze kterého začíná finální výstup na Strahlhorn. Tedy je to odtamtud ještě 400 výškových metrů na vrchol. Cestou potkáváme jednu dvojici, pár, který se právě vrací. Snažili se o výstup na Rimpfischhorn, ale trhliny je nakonec zastavily. Holčina do jedné zapadla po zadek a pak se asi vybála, takže to vzdali. Nepokouší se už o nic dalšího. A potom jsme celou dobu úplně sami. Dvě skupiny, které jsme viděli na začátku dne, už jsou nad sedlem, v traverzu, a my je ztrácíme z dohledu.
 Celou dobu jdu první na laně a vedu naši partu. Už teď je trochu znát nadmořská výška, ale jdeme stabilně a nezastavujeme a já mám radost z toho, jak nám to jde. To mi ovšem nevydrží dlouho, protože v tom se ozve Mára zezadu: „Je tohle vaše maximum?, protože jdeme dost pomalu a já každý dva vaše kroky musím zastavovat“. Trošku mě to vytočilo. Cože? To si myslí že se tady jako asi opaluju nebo co? :-D Šlapu do kopce ve 4000, nezastavuju, tak co víc by chtěl… :D No nic, Mára pochopí, že z nás už slovními pobídkami bohužel víc nevymáčkne, dává si na sebe další vrstvu a smiřuje se s naším tempem. 
 
