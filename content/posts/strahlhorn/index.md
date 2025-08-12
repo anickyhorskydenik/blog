@@ -37,10 +37,12 @@ Telefony máme od hranic přepnuté do režimu letadlo, nechceme riskovat připo
 Původní plán spát v kempu nakonec měníme a místo toho si rezervujeme nocleh v matrazenlageru na Britannia Hütte. Rozhodujeme se vylézt k chatě bez pomoci lanovek. Podaří se nám domluvit spaní bez polopenze. Když trávíte skoro každý víkend v horách, začne se polopenze trochu prodražovat. Takže bereme vařič a jídlo na tři dny, naházíme všechno do batohů a vyrážíme pěšky od nádrže Mattmark.
 
 ![pristup](pristup_britannia.jpg)
+*Přístup k chatě Britannia.*
 
 Na chatu musíme překonat cca 1000 výškových. Cestou přecházíme zbytky dvou ledovců, ale není se čeho bát, trasa je dobře vyznačená tyčemi a bez trhlin.
 
 ![pristup](vareni_chata.jpg)
+*S dovolením si vaříme u chaty. Polopenze ve Švýcarsku by nás zrujnovala!*
 
 ## Wintráč, drahá voda a sněžení
 
@@ -49,6 +51,7 @@ Na chatě nás šoupli do winterraumu – jackpot!
 Můžeme si v klidu uvařit venku a sníst to u stolu. Abychom alespoň podpořili chatu, dáváme pití, mastíme s Andy a Márou karty a domlouváme plány následujících dní. 
 
 ![mapa](planovani_mapy.jpg)
+*Přípravy a práce s mapou.*
 
 Zjišťujeme, že na chatě je vážný nedostatek pitné vody. Vodu sem dovážejí vrtulníkem a cena za jednu lahev nás trochu zaskočila. Na dotaz, kolik stojí, slečna řekla něco jako 14 franků. 
 
@@ -59,6 +62,7 @@ Těžko říct.
 Ať je to tak či tak, začali jsme si pro vodu chodit k ledovci. Trochu delší cesta, ale zato voda zdarma. Voda je lehce načervenalá, tak ji raději vždy převařujeme. Náš sobotní plán byl dát si aklimatizační výstup, ale počasí nám nepřeje, od rána sněží, fouká vítr, malá viditelnost. Nikomu se do tohoto počasí moc nechce. Procházíme se tedy v okolí, zajišťujeme vodu a obhlížíme trasu na neděli.
 
 ![snih](snezeni.jpg)
+*Sněží a sněží. Proč jsme si nevzali ty skialpy? Bude prašan.*
 
 V sobotu jsme si šli detailně prohlédnout trasu plánovanou na neděli. Podle mapy vede od chaty trochu nelogicky, nejprve přes ledovec Hohlaubgletscher, zprvu celkem kompaktním, poté přichází zóna trhlin a pak se zase zkompaktní. Následuje strmější výšvih na skalní hřebínek, který je potřeba přejít, a poté sestup traverzem v suťovém poli. Odtud se napojujete na ledovec Allalingletscher, jehož dolní část je proťatá obrovskými trhlinami. Cesta se napojuje v místě, kde už je trhlin méně.
 
@@ -73,10 +77,12 @@ Jestli ano, tak ji nevidíme.
 Budík zvoní ve 2:40 ráno. 
 
 ![budik](budicek.jpg)
+*Člověk nevstává vlastně ráno, ale spíš v noci.*
 
 Vstáváme a venku si vaříme vodu na kaši. Krátce před čtvrtou ranní už stojíme připraveni před chatou. Lano máme naměřené a nachystané už ze soboty, kdy jsme si trénovali vytahování z trhliny a práci s lanem, abychom si vše znovu osvěžili. 
 
 ![budik](rano_skupinovka.jpg)
+*Před čtvrtou raní vyrážíme na výstup a fotíme skupinovku.*
 
 Mám z nás radost. 
 
@@ -89,6 +95,7 @@ Držíme se tedy našeho směru přes ledovec Hohlaubgletscher a následně pře
 Na Hohlaubgletscheru bezpečně přecházíme zónu s trhlinami. Jakmile se blížíme k lehkému hřebínku, odvazujeme se, abychom ho mohli pohodlně přejít. A právě při přechodu nás vítá východ slunce. Zasněžené hory kolem nás se zbarvují do oranžova a Strahlhorn v dálce září v ranním světle. 
 
 ![slunce](vychod_slucne_hrebinek.jpg)
+*Východ slunce na hřebínku.*
 
 Pokračujeme dál po táhlém ledovci směrem k Adlerpassu, sedlu mezi Strahlhornem a Rimpfischhornem. 
 
@@ -103,6 +110,7 @@ Celá cesta z chaty na vrchol má cca 8 kilometrů jedním směrem a téměř 13
 Stěna Rimpfischhornu se před námi tyčí celou dobu, kdy pomalu postupujeme po ledovci nahoru. Vlevo od Rimpfischhornu se nachází Adlerpass, sedlo, ze kterého začíná finální výstup na Strahlhorn. Tedy je to odtamtud ještě 400 výškových metrů na vrchol. 
 
 ![slunce](rimpfischhorn.jpg)
+*Zleva Strahlhorn, sedlo Adlerpass a vpravo majestátní stěna Rimpfischhornu.*
 
 Cestou potkáváme jednu dvojici, pár, který se právě vrací. Snažili se o výstup na Rimpfischhorn, ale trhliny je nakonec zastavily. Holčina prý do jedné zapadla po zadek a pak se asi vybála, takže to vzdali. 
 
@@ -113,6 +121,7 @@ A potom jsme celou dobu úplně sami.
 Dvě skupiny, které jsme viděli na začátku dne, už jsou nad sedlem, v traverzu, a my je ztrácíme z dohledu.
 
 ![slunce](pauza_v_sedle.jpg)
+*Pauza v sedle. Řešíme, jestli máme ambice pokračovat dál.*
 
 Celou dobu jdu první na laně a vedu naši partu. 
 
@@ -131,6 +140,7 @@ To si myslí že se tady jako asi opaluju nebo co?
 :D No nic, Mára pochopí, že z nás už slovními pobídkami bohužel víc nevymáčkne, dává si na sebe další vrstvu a smiřuje se s naším tempem. 
 
 ![slunce](vrcholove_plato.jpg)
+*Vrcholové plató.*
 
 ## Vrchol, mlha a volání přírody ve výšce 4000 +
 
@@ -143,6 +153,7 @@ Na druhou stranu je padák skoro až do Saas Grundu.
 Ráno jsem odhadovala, že bychom to mohli dát do dvanácti, a do toho jsme se vešli.
 
 ![slunce](vrcholovka.jpg)
+*Vrcholová fotka, strávili jsme u kříže asi tak 2 minuty a už se začala valit mlha, scházíme tedy rychle dolů.*
 
 V zimě míváme nastavený pevný časový limit kvůli lavinám a když jsme pomalejší, výstup otáčíme. Ale dneska je situace jiná, technicky je túra relativně bezpečná, nehrozí žádné padající séraky ani laviny. 
 
@@ -153,6 +164,7 @@ Na vrcholu trávíme jen pár minut.
 Přichází sice mlha, ale stihli jsme si užít nádherné výhledy na Matterhorn, a Monte Rosu. Pak už ale rychle mizíme zpět dolů. Výška už je znát. 
 
 ![slunce](vyhled_mattas(2).jpg)
+*Výhledy na Maťas.*
 
 A při sestupu právě ve výšce 4050 m přichází… volání přírody. 
 
@@ -169,6 +181,7 @@ No jo, něco na tom bude.
 Ale upřímně? Já jsem stejně radši v pohorkách než na lyžích.
 
 ![slunce](séraky.jpg)
+*Séraky, nad kterými vede normálka, bezpečně mimo jejich trajektorii.*
 
 Při sestupu další člen týmu podléhá akutnímu volání přírody, ale jsme na kamenné moréně a může se odvázat z lana, takže se to logisticky zvládlo lépe. 
 
@@ -185,16 +198,19 @@ A teď už jsme v bezpečí, zase u svého „základního tábora“.
 Rychle házíme věci do batohů a navázaní na laně pokračujeme dál dolů po ledovci Allalin. Tato horní část je v pohodě, skoro bez trhlin. No, chvíli to opravdu vypadalo dobře… Jenže pak se terén začíná měnit. Nejdřív menší trhliny, pak větší a pak už takové, kde nevidíme dno.
 
 ![slunce](trhliny3.jpg)
+*Trhliny začínají nevinně.*
 
 U dalších bychom museli přeskočit třeba 160 cm a více. 
 
 ![slunce](trhliny1.jpg)
+*Poté přibývají.*
 
 Andy je malinká a poznamenává, že ona zvládne přeskočit jen 120 cm a tohle je už na ní moc. :D
 
 Začínáme mapovat okolí, hledáme alternativní cestu, obcházíme místo zprava, zleva… ale všude samá trhlina, místy doslova bludiště. 
 
 ![slunce](trhliny2.jpg)
+*Nakonec už mi dochází kuráž přes ně skákat.*
 
 Mára vytahuje dron, který měl celou dobu s sebou, ale zatím na něj nebyl čas. Teď ho konečně vypouští a přelétává s ním dolní část ledovce, abychom zjistili, jestli tam někde není schůdná trasa.
 
@@ -217,6 +233,7 @@ Jsme dobře vybavení, jídla máme dost. Po cestě se snažíme vymyslet jakouk
 A pak to zahlédneme: za kamenným traverzem světlo na konci tunelu, stopy ve sněhu vedoucí ke sněhovému žlábku.
 
 ![slunce](objevujeme_snehovy_zlabek.jpg)
+*Objevujeme sněhový žlábek, že by nám ušetřil pár hodin?.*
 
 Rychlá kontrola mapy – je to skutečně náš směr. Chvíli radostné euforie obohacujeme různými vtipy a vymyslela jsem řčení: Uvidím tyči, a mám v pi*i. Tímto bojovým heslem jsem už chtěla přivolat tyčové značení a cestu. 
 
@@ -227,6 +244,7 @@ Po sejití žlabu se před námi rozprostře obrovské kamenné pole. Šutry o v
 Jdeme přes ně směrem k cestě. 
 
 ![slunce](IMG_0647.jpg)
+*Na této jediné fotce je vidět, jakou velikost šutrů jsme museli přelejzat. Jsou to ty šutry v popředí.*
 
 Na některých z těch obřích kamenů zahlédneme mužiky – nebo to už je fatamorgána? 
 
@@ -243,6 +261,7 @@ Dobrý je, že člověk špatný zážitky už jen za pár dní vždy vytěsní,
 Zbývá posledních 70 metrů k cestě… a jsme tam. Zachráněni! Dáváme další svačinu, protože nás čeká ještě 800 výškových metrů dolů. Pomalu se stmívá a zapínáme čelovky. V místě, kde byl v pátek kozorožec, už teď nikdo není. V tuto hodinu už i kozorožci šli na kutě.
 
 ![slunce](kozorozka.jpg)
+*Kozorožka, spatřena při nástupu na chatu v pátek.*
 
 Na cestě k nádrži Mattmark si do vody z potoka házíme dva šumáky do flašky a doplňujeme poslední síly. K autu dorážíme kolem jedenácté večer – celý den nám zabral necelých 20 hodin. 
 
@@ -255,11 +274,14 @@ Máme však sílu už jen na jediné – spát v autě přímo u nádrže Mattma
 Ležím ve spacáku, říkám Martinovi dobrou… a cítím, že mě něco tlačí na hlavě. Zjišťuji, že usínám s helmou a čelovkou na hlavě.
 
 ![slunce](usinam_s_celovkou.jpg)
+*Toto se mi ještě nestalo, ale usínám s helmou na hlavě.*
 
 Ráno, v pondělí, se přesouváme na jistotu do kempu Kapellenweg v Saas Grundu – a ten nás zase zachraňuje. Perfektní wi-fi a pracovní místnost. Slečna z kempu je zlatá – za 5 franků máme azyl na celý den.
 
 ![slunce](vareni_saas_grund.jpg)
+*V Saas Grund si vaříme pořádný oběd na plyňáku.*
 
 Na závěr mi tato výprava přinesla pár zjištění. Do hor choďte s lidmi, kteří nejen zvládnou bezpečně výstup, ale především potencionální krizovou situaci. Dále to, že ne každá zkratka v horách se vyplatí. To platí i v běžném životě. A v neposlední řadě, na kemp Kapellenweg v Saas Grundu je vždycky spolehnutí!
 
 ![slunce](vyhled_monterosa.jpg)
+*Výhledy z vrcholu Strahlhornu.*
