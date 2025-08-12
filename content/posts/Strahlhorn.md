@@ -1,5 +1,5 @@
 +++ 
-title = "Strahlhorn (4190 m) 8/2025" 
+title = "Strahlhorn 4190 m 8/2025" 
 date = "2025-08-27T19:36:00+02:00" 
 draft = false 
 description = "Výstup na čtyřtisícovku Strahlhorn ve švýcarském Wallisu. Tento vrchol je preferovaný především v zimě na skialpech, kvůli délce a táhlosti výstupu, ale také kvůli trhlinám." 
