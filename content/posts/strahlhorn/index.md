@@ -32,8 +32,6 @@ Do party se přidali Andy a Mára, ostřílení borci, se kterými jsem se pozna
 
 Ve čtvrtek po práci vyrážíme z Innsbrucku míříme vstříc Švýcarsku. Přenocujeme klasicky na Furka Passu, spaní v autě zadarmo, jak jinak. Na vařiči vaříme udon nudle s tuňákem a sušenými rajčaty a strouháme si na ně čerstvý parmezán. To by šlo! 
 
-![snidane](snidane_furka.jpg)
-
 Telefony máme od hranic přepnuté do režimu letadlo, nechceme riskovat připojení se na švýcarská data. Na pátek máme naplánovaný pracovní den, takže jsem předem vybrala kavárnu v Brigu. A byla to trefa. Mají tam zásuvky, rychlý internet a milou obsluhu. 
 
 Ideální coworking pro nomády. Pracujeme v téměř prázdné kavárně za cenu jednoho kafe. 
@@ -41,8 +39,6 @@ Ideální coworking pro nomády. Pracujeme v téměř prázdné kavárně za cen
 ![kavarna](prace_kavarna.jpg)
 
 Původní plán spát v kempu nakonec měníme a místo toho si rezervujeme nocleh v matrazenlageru na Britannia Hütte. Rozhodujeme se vylézt k chatě bez pomoci lanovek. Podaří se nám domluvit spaní bez polopenze. Když trávíte skoro každý víkend v horách, začne se polopenze trochu prodražovat. Takže bereme vařič a jídlo na tři dny, naházíme všechno do batohů a vyrážíme pěšky od nádrže Mattmark.
-
-![mattmark](mattmark_nadrz.jpg)
 
 Na chatu musíme překonat cca 1000 výškových. Cestou přecházíme zbytky dvou ledovců, ale není se čeho bát, trasa je dobře vyznačená tyčemi a bez trhlin.
 
@@ -83,6 +79,8 @@ Budík zvoní ve 2:40 ráno.
 
 Vstáváme a venku si vaříme vodu na kaši. Krátce před čtvrtou ranní už stojíme připraveni před chatou. Lano máme naměřené a nachystané už ze soboty, kdy jsme si trénovali vytahování z trhliny a práci s lanem, abychom si vše znovu osvěžili. 
 
+![budik](rano_skupinovka.jpg)
+
 Mám z nás radost. 
 
 Jsme dobře připravení i aklimatizovaní, dvě noci ve výšce kolem 3000 m, plus přespání na Furce, udělaly svoje. 
@@ -116,6 +114,8 @@ Nepokouší se už o nic dalšího.
 A potom jsme celou dobu úplně sami. 
 
 Dvě skupiny, které jsme viděli na začátku dne, už jsou nad sedlem, v traverzu, a my je ztrácíme z dohledu.
+
+![slunce](pauza_v_sedle.jpg)
 
 Celou dobu jdu první na laně a vedu naši partu. 
 
@@ -170,6 +170,8 @@ A tak asi dvacetkrát slyším, že „na skialpech by to bylo pár obloučků a
 No jo, něco na tom bude. 
 
 Ale upřímně? Já jsem stejně radši v pohorkách než na lyžích.
+
+![slunce](séraky.jpg)
 
 Při sestupu další člen týmu podléhá akutnímu volání přírody, ale jsme na kamenné moréně a může se odvázat z lana, takže se to logisticky zvládlo lépe. 
 
@@ -243,6 +245,8 @@ Dobrý je, že člověk špatný zážitky už jen za pár dní vždy vytěsní,
 
 Zbývá posledních 70 metrů k cestě… a jsme tam. Zachráněni! Dáváme další svačinu, protože nás čeká ještě 800 výškových metrů dolů. Pomalu se stmívá a zapínáme čelovky. V místě, kde byl v pátek kozorožec, už teď nikdo není. V tuto hodinu už i kozorožci šli na kutě.
 
+![slunce](kozorozka.jpg)
+
 Na cestě k nádrži Mattmark si do vody z potoka házíme dva šumáky do flašky a doplňujeme poslední síly. K autu dorážíme kolem jedenácté večer – celý den nám zabral necelých 20 hodin. 
 
 Konstatujeme, že to byla jedna z nejdelších túr, které jsme kdy šli.
@@ -258,3 +262,7 @@ Ležím ve spacáku, říkám Martinovi dobrou… a cítím, že mě něco tlač
 Ráno, v pondělí, se přesouváme na jistotu do kempu Kapellenweg v Saas Grundu – a ten nás zase zachraňuje. Perfektní wi-fi a pracovní místnost. Slečna z kempu je zlatá – za 5 franků máme azyl na celý den.
 
 ![slunce](vareni_saas_grund.jpg)
+
+Na závěr mi tato výprava přinesla pár zjištění. Do hor choďte s lidmi, kteří nejen zvládnou bezpečně výstup, ale především potencionální krizovou situaci. Dále to, že ne každá zkratka v horách se vyplatí. To platí i v běžném životě. A v neposlední řadě, na kemp Kapellenweg v Saas Grundu je vždycky spolehnutí!
+
+![slunce](vyhled_monterosa.jpg)
