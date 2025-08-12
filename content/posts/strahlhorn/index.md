@@ -152,7 +152,7 @@ Na druhou stranu je padák skoro až do Saas Grundu.
 
 Ráno jsem odhadovala, že bychom to mohli dát do dvanácti, a do toho jsme se vešli.
 
-![slunce](vrcholovka.jpg)
+![slunce](vrcholovka.JPG)
 *Vrcholová fotka, strávili jsme u kříže asi tak 2 minuty a už se začala valit mlha, scházíme tedy rychle dolů.*
 
 V zimě míváme nastavený pevný časový limit kvůli lavinám a když jsme pomalejší, výstup otáčíme. Ale dneska je situace jiná, technicky je túra relativně bezpečná, nehrozí žádné padající séraky ani laviny. 
@@ -163,7 +163,7 @@ Na vrcholu trávíme jen pár minut.
 
 Přichází sice mlha, ale stihli jsme si užít nádherné výhledy na Matterhorn, a Monte Rosu. Pak už ale rychle mizíme zpět dolů. Výška už je znát. 
 
-![slunce](vyhled_mattas (2).jpg)
+![slunce](vyhled_mattas.jpg)
 *Výhledy na Maťas.*
 
 A při sestupu právě ve výšce 4050 m přichází… volání přírody. 
@@ -180,7 +180,7 @@ No jo, něco na tom bude.
 
 Ale upřímně? Já jsem stejně radši v pohorkách než na lyžích.
 
-![slunce](séraky.jpg)
+![slunce](seraky.jpg)
 *Séraky, nad kterými vede normálka, bezpečně mimo jejich trajektorii.*
 
 Při sestupu další člen týmu podléhá akutnímu volání přírody, ale jsme na kamenné moréně a může se odvázat z lana, takže se to logisticky zvládlo lépe. 
