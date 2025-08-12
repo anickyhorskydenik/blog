@@ -163,7 +163,7 @@ Na vrcholu trávíme jen pár minut.
 
 Přichází sice mlha, ale stihli jsme si užít nádherné výhledy na Matterhorn, a Monte Rosu. Pak už ale rychle mizíme zpět dolů. Výška už je znát. 
 
-![slunce](vyhled_mattas(2).jpg)
+![slunce](vyhled_mattas (2).jpg)
 *Výhledy na Maťas.*
 
 A při sestupu právě ve výšce 4050 m přichází… volání přírody. 
