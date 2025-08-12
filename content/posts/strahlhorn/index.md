@@ -281,9 +281,9 @@ Ráno, v pondělí, se přesouváme na jistotu do kempu Kapellenweg v Saas Grund
 ![slunce](vareni_saas_grund.jpg)
 *V Saas Grund si vaříme pořádný oběd na plyňáku.*
 
-Na závěr mi tato výprava přinesla pár zjištění. Do hor choďte s lidmi, kteří nejen zvládnou bezpečně výstup, ale především potencionální krizovou situaci. Dále to, že ne každá zkratka v horách se vyplatí. To platí i v běžném životě. A v neposlední řadě, na kemp Kapellenweg v Saas Grundu je vždycky spolehnutí!
+Finálně podtrženo a sečteno 1600+ VM nahoru, 2400 + vm dolu, 20 + km délka a 19 hodin chůze.
 
-Finálně podtrženo a sečteno 1600+ VM nahoru, 2400 + vm dolu a téměř 20 hodin aktivity.
+Na závěr mi tato výprava přinesla pár zjištění. Do hor choďte s lidmi, kteří nejen zvládnou bezpečně výstup, ale především potencionální krizovou situaci. Dále to, že ne každá zkratka v horách se vyplatí. To platí i v běžném životě. A v neposlední řadě, na kemp Kapellenweg v Saas Grundu je vždycky spolehnutí!
 
 ![slunce](vyhled_monterosa.jpg)
 *Výhledy z vrcholu Strahlhornu.*
