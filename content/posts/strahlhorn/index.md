@@ -232,7 +232,7 @@ Jsme dobře vybavení, jídla máme dost. Po cestě se snažíme vymyslet jakouk
 
 A pak to zahlédneme: za kamenným traverzem světlo na konci tunelu, stopy ve sněhu vedoucí ke sněhovému žlábku.
 
-![slunce](objevujeme_snehovy_zlabek.jpg)
+![slunce](radost_zlabek_kameny_kolem.jpg)
 *Objevujeme sněhový žlábek, že by nám ušetřil pár hodin?.*
 
 Rychlá kontrola mapy – je to skutečně náš směr. Chvíli radostné euforie obohacujeme různými vtipy a vymyslela jsem řčení: Uvidím tyči, a mám v pi*i. Tímto bojovým heslem jsem už chtěla přivolat tyčové značení a cestu. 
