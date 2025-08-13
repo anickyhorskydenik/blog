@@ -196,12 +196,10 @@ Rychle házíme věci do batohů a navázaní na laně pokračujeme dál dolů p
 ![slunce](trhliny3.jpg)
 *Trhliny začínají nevinně.*
 
-U dalších bychom museli přeskočit třeba 160 cm a více. 
-
 ![slunce](trhliny1.jpg)
 *Poté přibývají.*
 
-Andy je malinká a poznamenává, že ona zvládne přeskočit jen 120 cm a tohle je už na ní moc. :D
+U dalších bychom museli přeskočit třeba 160 cm a více. Andy je malinká a poznamenává, že ona zvládne přeskočit jen 120 cm a tohle je už na ní moc. :D
 
 Začínáme mapovat okolí, hledáme alternativní cestu, obcházíme místo zprava, zleva… ale všude samá trhlina, místy doslova bludiště. 
 
