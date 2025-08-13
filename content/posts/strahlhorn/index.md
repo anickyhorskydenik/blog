@@ -22,11 +22,7 @@ Pokud přespáváte v kempu, máte drahé lanovky v celém údolí zdarma.
 
 Ano, čtete správně. 
 
-Plán byl tedy jasný, levný výlet na čtyřtisícovku ve Švýcarsku bez nutnosti prodávat ledvinu. 
-
-Jako obvykle jsem Martina opět nalákala na vidinu „lowcostového výletu“. 
-
-Do party se přidali Andy a Mára, ostřílení borci, se kterými jsem se poznala na Mountain Academy a byli jsme spolu na Wildspitzi. Ideální parta!
+Plán byl tedy jasný, levný výlet na čtyřtisícovku ve Švýcarsku bez nutnosti prodávat ledvinu. Jako obvykle jsem Martina opět nalákala na vidinu „lowcostového výletu“. Do party se přidali Andy a Mára, ostřílení borci, se kterými jsem se poznala na Mountain Academy a byli jsme spolu na Wildspitzi. Ideální parta!
 
 ## Spaní na Furce a výšlap natěžko na Britannia Hütte
 
