@@ -26,7 +26,7 @@ Plán byl tedy jasný, levný výlet na čtyřtisícovku ve Švýcarsku bez nutn
 
 ## Spaní na Furce a výšlap natěžko na Britannia Hütte
 
-Ve čtvrtek po práci vyrážíme z Innsbrucku míříme vstříc Švýcarsku. Přenocujeme klasicky na Furka Passu, spaní v autě zadarmo, jak jinak. Na vařiči vaříme udon nudle s tuňákem a sušenými rajčaty a strouháme si na ně čerstvý parmezán. To by šlo! 
+Ve čtvrtek po práci vyrážíme z Innsbrucku a míříme vstříc Švýcarsku. Přenocujeme klasicky na Furka Passu, spaní v autě zadarmo, jak jinak. Na vařiči vaříme udon nudle s tuňákem a sušenými rajčaty a strouháme si na ně čerstvý parmezán. To by šlo! 
 
 Telefony máme od hranic přepnuté do režimu letadlo, nechceme riskovat připojení se na švýcarská data. Na pátek máme naplánovaný pracovní den, takže jsem předem vybrala kavárnu v Brigu. A byla to trefa. Mají tam zásuvky, rychlý internet a milou obsluhu. Ideální coworking pro nomády. Pracujeme v téměř prázdné kavárně za cenu jednoho kafe. 
 
@@ -136,6 +136,7 @@ To si myslí že se tady jako asi opaluju nebo co?
 :D No nic, Mára pochopí, že z nás už slovními pobídkami bohužel víc nevymáčkne, dává si na sebe další vrstvu a smiřuje se s naším tempem. 
 
 ![slunce](vrcholove_plato.jpg)
+
 *Vrcholové plató.*
 
 ## Vrchol, mlha a volání přírody ve výšce 4000 +
@@ -231,7 +232,7 @@ A pak to zahlédneme: za kamenným traverzem světlo na konci tunelu, stopy ve s
 
 Rychlá kontrola mapy – je to skutečně náš směr. Chvíli radostné euforie obohacujeme různými vtipy a vymyslela jsem řčení: Uvidím tyči, a mám v pi*i. Tímto bojovým heslem jsem už chtěla přivolat tyčové značení a cestu. 
 
-Už vidíme dolů ze žlábku. Trochu se obáváme, že na nás v tomhle směru bude čekat neschůdný terén. Ale nakonec je to „jen“ skoro neschůdný terén.
+Už vidíme dolů ze žlábku. Trochu se obáváme, že na nás v tomhle směru bude čekat neschůdný terén. Ale nakonec je to jen „skoro“ neschůdný terén.
 
 Po sejití žlabu se před námi rozprostře obrovské kamenné pole. Šutry o velikosti ledniček a mikrovlnek. 
 
@@ -275,7 +276,7 @@ Ráno, v pondělí, se přesouváme na jistotu do kempu Kapellenweg v Saas Grund
 ![slunce](vareni_saas_grund.jpg)
 *V Saas Grund si vaříme pořádný oběd na plyňáku.*
 
-Finálně podtrženo a sečteno 1600+ VM nahoru, 2400 + vm dolu, 20 + km délka a 19 hodin chůze.
+Finálně podtrženo a sečteno 1600+ vm nahoru, 2400+ vm dolu, 20+ km délka a 19 hodin chůze.
 
 Na závěr mi tato výprava přinesla pár zjištění. Do hor choďte s lidmi, kteří nejen zvládnou bezpečně výstup, ale především potencionální krizovou situaci. Dále to, že ne každá zkratka v horách se vyplatí. To platí i v běžném životě. A v neposlední řadě, na kemp Kapellenweg v Saas Grundu je vždycky spolehnutí!
 
